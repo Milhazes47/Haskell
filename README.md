@@ -1,1 +1,1 @@
-This is basically just exercises i do in class :P
+None of this stuff is impressive nor useful per say (like anything else here)
